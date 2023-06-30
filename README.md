@@ -1,1 +1,1 @@
-coding  very hard
+life is easy
